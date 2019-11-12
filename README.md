@@ -1,0 +1,1 @@
+Andy Favorite Artist: Shawn Mendes Favorite Color: Blue
